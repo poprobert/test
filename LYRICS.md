@@ -44,6 +44,7 @@ Donc j'ai dû renoncer, trouver mes propres complices
 Mes partenaires de glisse, désolé si je m'immisce 
 
 
+
 Que voulais-tu que ton fils apprenne dans la rue?
 Quelles vertus croyais-tu qu'on y enseigne?
 Mais t'as pas vu comment ça pue dehors
@@ -63,3 +64,15 @@ Laisse pas traîner ton fils
 Si tu veux pas qu'il glisse
 Qu'il te ramène du vice
 
+Non laisse pas traîner ton fils 
+Laisse pas traîner ton fils 
+Si tu ne veux pas qu'il glisse 
+Qu'il te ramène du vice 
+Laisse pas traîner ton fils 
+Si tu veux pas qu'il glisse 
+ 
+Laisse pas traîner ton fils 
+Si tu ne veux pas qu'il glisse 
+Qu'il te ramène du vice 
+Laisse pas traîner ton fils 
+Si tu veux pas qu'il glisse 
